@@ -14,3 +14,10 @@
 
 ![d](https://upload.wikimedia.org/wikipedia/commons/thumb/7/70/Brest_oblast_location_map.svg/1200px-Brest_oblast_location_map.svg.png)
 
+
+**Достопримечательности**
+
+*Свято-Никольская церковь* — церковь в честь святителя Николая Чудотворца в городе Кобрине, построенная в 1750 году. 
+
+![фото Свято-Никольская церковь](https://upload.wikimedia.org/wikipedia/commons/4/4b/%D0%9A%D0%BE%D0%B1%D1%80%D1%8B%D0%BD._%D0%94%D1%80%D0%B0%D1%9E%D0%BB%D1%8F%D0%BD%D0%B0%D1%8F_%D1%86%D0%B0%D1%80%D0%BA%D0%B2%D0%B0.jpg "Свято-Никольская церковь")
+
